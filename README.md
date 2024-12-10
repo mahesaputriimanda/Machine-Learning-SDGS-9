@@ -1,0 +1,2 @@
+# Machine-Learning-SDGS-9
+SDGS 9 : INDUSTRY | INOVASI | INFRASTRUKTUR (Kelompok MKKM)
